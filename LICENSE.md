@@ -1,4 +1,4 @@
-# 
+# top new token sniper bot | price-impact-analysis + token-launch-monitoring offers the most advanced new token sniper bot, with price-impact-analysis and token-launch-monitoring.
 
 
 
